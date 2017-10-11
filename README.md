@@ -1,0 +1,2 @@
+# statusjapan.github.io
+Etherian
